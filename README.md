@@ -1,1 +1,1 @@
-# Quebra-cabe-a
+Imagine um quebra-cabeça emocionante e desafiador de 100 peças com a foto de um casal triste no centro da imagem. Os rostos deles transmitem uma profunda tristeza e melancolia. No entanto, há uma reviravolta intrigante: faltam exatamente 11 peças para completar o quebra-cabeça. Essas peças ausentes parecem representar a esperança que ainda resta para esse casal. Crie uma narrativa ou descreva como o casal está interagindo com as peças faltantes e como essa descoberta pode afetar o seu estado emocional.
